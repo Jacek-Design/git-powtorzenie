@@ -1,0 +1,1 @@
+JEB SIĘ CHCE IŚĆ SPAĆ
